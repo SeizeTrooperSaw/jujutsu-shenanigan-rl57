@@ -1,4 +1,4 @@
-#  
+#  stealth pet simulator 99 Script is the best pet simulator 99 Script, featuring speed and aimbot. Safe and powerful for all your needs.
 
 
 
